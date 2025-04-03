@@ -26,7 +26,7 @@ Exciting opportunities in **DevOps** or **Cloud-based roles** to leverage my ski
 ## 📫 Let’s Connect  
 - **📧 Email**: [paladijanthsai@gmail.com](mailto:paladijayanthsai@gmail.com)  
 - **💼 LinkedIn**: [Jayanthsai Paladi](https://www.linkedin.com/in/jayanthsai-paladi-55855825a)  
-- **📄 Resume**: [View Here](https://drive.google.com/file/d/1D1oLl96AEeQ1V6t8jwARC3iqF6EC-ZHM/view?usp=sharing)  
+- **📄 Resume**: [View Here](https://drive.google.com/file/d/1Awp4S764damPMpAtRpXHePd09vgCpoFg/view?usp=sharing)  
 
 ---
 
